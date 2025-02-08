@@ -1,7 +1,7 @@
 "Every breath you take, the misery of it all burns your lungs."
-ㅤ
-ㅤ
-ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ryudya or dosya . they/it
 semiverbal, nonverbal, nvuf.
 _____________________________
