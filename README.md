@@ -2,5 +2,5 @@
 
 ryudya or dosya . intj ㅤ𓉸ㅤㅤㅤㅤㅤㅤ
 semiverbal, nonverbal, nvufㅤㅤㅤㅤ
-ㅤㅤㅤㅤptsd symptons.
+ㅤㅤㅤㅤptsd symptoms.
 _____________________________
