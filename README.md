@@ -2,4 +2,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ryudya or dosya . intjㅤㅤㅤㅤㅤㅤㅤㅤ
-semiverbal, nonverbal, nvuf .
+_____________________________
+semiverbal, nonverbal, nvuf
