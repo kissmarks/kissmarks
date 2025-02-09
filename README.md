@@ -1,6 +1,4 @@
-"Every breath you take, the misery of it all burns your lungs."
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ryudya or dosya . intjㅤㅤㅤㅤㅤㅤㅤㅤ
-_____________________________
+ryudya or dosya . intj ㅤ𓉸
 semiverbal, nonverbal, nvuf
+ptsd symptons.
+_____________________________
