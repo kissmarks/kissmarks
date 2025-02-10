@@ -3,7 +3,7 @@
 ryudya or dosya . intj ㅤ𓉸ㅤㅤㅤㅤㅤㅤ
 semiverbal, nonverbal, nvufㅤㅤㅤㅤ
 ㅤㅤㅤㅤptsd symptomsㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-would go to a sudden off ALOT cuz my wifi sucks. I'm always s-afk or offtab except If i'm w my friends.
+would go to a sudden off ALOT cuz my wifi sucks. I'm always s-afk or offtab except If i'm w my friend(s).
 i usually don't make first talks nor that i text first. 
 _____________________________
 dni: basic dni criteria, disgusting skins, bunny suit/maid skins and dazaku/odazai shippers y'all gotta be fr. GET OUT. ㅤㅤㅤ
