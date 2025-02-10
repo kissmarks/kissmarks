@@ -6,5 +6,5 @@ semiverbal, nonverbal, nvufㅤㅤㅤㅤ
 would go to a sudden off ALOT cuz my wifi sucks. I'm always s-afk or offtab except If i'm w my friends.
 i usually don't make first talks nor that i text first. 
 _____________________________
-dni: basic dni criteria, disgusting skins, bunny suit/maid skins and dazaku/odazai shippers y'all gotta be fr. GET OUT. 
+dni: basic dni criteria, disgusting skins, bunny suit/maid skins and dazaku/odazai shippers y'all gotta be fr. GET OUT. ㅤㅤㅤ
 "Now you know my anger; The pain I felt for 50 years and you made the same choice I did."
