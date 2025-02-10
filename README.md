@@ -7,4 +7,5 @@ would go to a sudden off ALOT cuz my wifi sucks. I'm always s-afk or offtab exce
 i usually don't make first talks nor that i text first. 
 _____________________________
 dni: basic dni criteria, disgusting skins, bunny suit/maid skins and dazaku/odazai shippers y'all gotta be fr. GET OUT. ㅤㅤㅤ
+_____________________________
 "Now you know my anger; The pain I felt for 50 years and you made the same choice I did."
