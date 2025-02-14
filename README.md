@@ -2,7 +2,7 @@
 
 ryudya or dosya . intj ㅤ𓉸ㅤㅤㅤㅤㅤㅤ
 semiverbal, nonverbal, nvufㅤㅤㅤㅤ
-ㅤㅤㅤㅤptsd symptomsㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 would go to a sudden off ALOT cuz my wifi sucks. I'm always s-afk or offtab except If i'm w my friend(s).
 i usually don't make first talks nor that i text first. 
 _____________________________
