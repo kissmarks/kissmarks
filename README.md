@@ -1,2 +1,1 @@
-"maybe, the loneliness and boredom i feel is the peace i always wanted."
-
+"the loneliness came back, way worse than i remember. i don't understand, i'm doing the right thing.
