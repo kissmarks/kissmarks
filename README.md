@@ -1,2 +1,2 @@
 ![](https://files.catbox.moe/5tl6ar.png)
-ㅤ *fyodor dostoevsky enthausiast*
+ㅤ [ rentry ](https://rentry.co/Crimeshallbegin)
